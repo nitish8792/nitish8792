@@ -34,8 +34,8 @@
 
 ## 📫 Connect With Me
 
-- LinkedIn:[GitHub Stats](https://www.linkedin.com/in/nitish-yadav-b48041385)
-- Instagram: [https://www.instagram.com/fit_warrior_nitish?stkn=Yzl3bmZodnp2cmNs
+- LinkedIn: [GitHub Stats] (https://www.linkedin.com/in/nitish-yadav-b48041385)
+- Instagram: [Instagram] [https://www.instagram.com/fit_warrior_nitish?stkn=Yzl3bmZodnp2cmNs
 
 ---
 
